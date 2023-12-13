@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sabarivivek21@gmail.com**
 
-- ⚡ Fun fact **I sleep while writing code**
+- ⚡ Fun fact **I fall asleep while writing code**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
